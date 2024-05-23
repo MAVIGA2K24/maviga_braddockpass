@@ -12,4 +12,4 @@ The new traffic conditions and construction sites now make it much more difficul
 
 Feedback and suggestions are always welcome. If you have any suggestions or feedback, you can simply contact me via direct message.
 
-If you would like to support me voluntarily, you can do so via PayPalMe. | [PayPal - ](https://www.paypal.com/paypalme/gordon1289)
+If you would like to support me voluntarily, you can do so via PayPalMe. | [PayPal](https://www.paypal.com/paypalme/gordon1289)
